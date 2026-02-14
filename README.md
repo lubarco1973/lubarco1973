@@ -1,6 +1,6 @@
 ## Hi there Eu sou a Lucilene
 
-- 🔭 Atualmente trabalho na área da saúde, sou técnica de enfermagem
+- 🔭 Atualmente trabalho na área da saúde
 - 🌱 Estudando Excel 365
 - 📫 Contate-me no e-mail: lu.barco1973@gmail.com
 - 😄 Pronouns: ela/dela
